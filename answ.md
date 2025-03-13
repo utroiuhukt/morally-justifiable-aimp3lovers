@@ -1,5 +1,20 @@
-.La dark net es un sitio donde se encuentran muchas cosas ilegales como puede ser la venta de drogas, personas, videos de asesinatos, órganos, cp, etc. Además de que es un sitio con una manera un poco inusual de meterse y el hecho de intentarlo sin los conocimientos necesarios es peligroso.
-.Para mí el usar a otros criminales me parece bien ya que es algo bastante usual cuando te metes en cosas ilegales ya que ese tipo de personas no piensan en nada más que en ellos y como crecer y si necesitan matar o usar a alguien lo harán y ellos mismos saben los riesgos que implica hacer esas cosas y al mundo al que se están metiendo.
-.El hecho de que Sam bet haya comenzado a trabajar con la justicia para mí me parece un buen acto de redención ya que para mí todas las personas tienen el derecho de enmendar los errores y aprender de ellos para así ser una mejor persona para el mismo y para las demás personas, sin embargo el no saber si realmente lo hizo por arrepentimiento o solo lo hizo para su propio beneficio me hace no tener una respuesta tan clara sobre el caso de él.
-.Sam bet usó criptomonedas para facilitar la venta de drogas y pasar desapercibido rompiendo así una ley ya que es ilegal, así que sí, violó un principio.
-.La pregunta que yo le haría a Sam bet sería:¿cómo ha cambiado tu percepción sobre la ética y la legalidad después de hacer tu transición de vendedor de drogas a trabajar como consultor de seguridad?.
+### Sobre la Dark Net  
+La **dark net** es un espacio en línea donde se encuentran muchas actividades ilegales, como la venta de drogas, personas, videos de asesinatos, órganos, material de explotación infantil, entre otros. Además, es un sitio al que se accede de manera inusual, y el intentar entrar sin los conocimientos necesarios puede ser extremadamente peligroso.
+
+---
+
+### Mi opinión sobre el uso de otros criminales  
+Para mí, el usar a otros criminales es algo que, aunque moralmente cuestionable, es bastante común en el mundo de las actividades ilegales. Este tipo de personas suelen pensar únicamente en su propio beneficio y crecimiento, sin importarles los medios para lograrlo, incluso si eso implica matar o manipular a otros. Ellos mismos son conscientes de los riesgos y del mundo al que se están metiendo.
+
+---
+
+### El caso de Sam Bet y su redención  
+El hecho de que **Sam Bet** haya comenzado a trabajar con la justicia me parece un acto de redención. Creo que todas las personas tienen derecho a enmendar sus errores y aprender de ellos para convertirse en mejores individuos, tanto para sí mismos como para los demás. Sin embargo, la incertidumbre sobre si lo hizo por arrepentimiento genuino o por interés personal me deja sin una respuesta clara sobre su caso.
+
+Sam Bet utilizó **criptomonedas** para facilitar la venta de drogas y evadir la ley, lo que claramente violó principios legales y éticos.
+
+---
+
+### Pregunta para Sam Bet  
+Si tuviera la oportunidad, le preguntaría a Sam Bet:  
+**"¿Cómo ha cambiado tu percepción sobre la ética y la legalidad después de hacer tu transición de vendedor de drogas a trabajar como consultor de seguridad?"**
